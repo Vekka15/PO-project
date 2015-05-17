@@ -1,4 +1,4 @@
-Zuzanna Sawala, 117217, Środa 15:10
+
 
 INSTRUKCJA
 
